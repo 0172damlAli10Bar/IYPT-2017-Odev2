@@ -1,1 +1,11 @@
-Buraya deney resimlerinizi ve grafiklerinizi koyunuz. 
+https://doc-0o-3k-docs.googleusercontent.com/docs/securesc/ceq80lhcdc98imr8d0qoprok1kb8rt2k/5eh28bijv075frsk86rva56jn17614qp/1515319200000/12766987685739319509/12766987685739319509/17I1k16z0Bsa1QL4bcS3G-TmKLzIQhCxg?e=download
+
+https://doc-0g-3k-docs.googleusercontent.com/docs/securesc/ceq80lhcdc98imr8d0qoprok1kb8rt2k/ecf07vp8tscoauoj0b9u6tlsi62hggk1/1515319200000/12766987685739319509/12766987685739319509/1nOLtzpGFrgivFar4a35vEnVYlIgP-dN7?e=download
+
+https://doc-10-3k-docs.googleusercontent.com/docs/securesc/ceq80lhcdc98imr8d0qoprok1kb8rt2k/rt9ppoa20b0kcfa5auq1ebue62vl2mvf/1515319200000/12766987685739319509/12766987685739319509/1FBVLOLHJXOucZspg5tXuELcqd_xnxxeD?e=download
+
+https://doc-00-3k-docs.googleusercontent.com/docs/securesc/ceq80lhcdc98imr8d0qoprok1kb8rt2k/ol0g639nvr0lah6vi9deq9ift1gmj60l/1515319200000/12766987685739319509/12766987685739319509/1fkAA56eEHqQ6SHdye8KsZRyw9ADLNSMO?e=download
+
+https://doc-14-3k-docs.googleusercontent.com/docs/securesc/ceq80lhcdc98imr8d0qoprok1kb8rt2k/42f745mdhpm5h2q18qti10d7jg78bcbi/1515319200000/12766987685739319509/12766987685739319509/1CKzWXDQOlZiG0JtajDmxIMlmT9H_YZTa?e=download
+
+https://doc-0k-3k-docs.googleusercontent.com/docs/securesc/ceq80lhcdc98imr8d0qoprok1kb8rt2k/jm2l31gh3gnrb9ipao8d707iq9r49jq7/1515319200000/12766987685739319509/12766987685739319509/1xYSySQUw_9iYRVEqEeTKf7TmSxn9pqHB?e=download
